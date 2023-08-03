@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Whytmail
+- 👀 I’m interested in Making money
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on sharing Ideas
+- 📫 How to reach me is Via my email clintonwhyt.cc@gmail.com
